@@ -1,6 +1,6 @@
 ## HIHIHIHI!!! welcome to my profile ehehe
 
-[(https://cdn.discordapp.com/attachments/1205054325278380033/1208643968297074788/Untitled207_20240217231928.png?ex=6aaec429&is=6aad72a9&hm=2f35393981c9132818a13ce1d2d35b9e8292901cf0641f8ce7ed1a9ffea8df45&)]
+![cute image]([assets/your-image.png](https://cdn.discordapp.com/attachments/1205054325278380033/1208643968297074788/Untitled207_20240217231928.png?ex=6aaec429&is=6aad72a9&hm=2f35393981c9132818a13ce1d2d35b9e8292901cf0641f8ce7ed1a9ffea8df45&))
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 ☀️⋆｡𖦹°☁️⋆.ೃ࿔*:･
