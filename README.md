@@ -1,7 +1,4 @@
-## HIHIHIHI!!! my name is ellie or sploinkous!! welcome to my profile ehehe
-
-<!--
-**SploLOL/SploLOL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## HIHIHIHI!!! welcome to my profile ehehe
 
 [(https://cdn.discordapp.com/attachments/1205054325278380033/1208643968297074788/Untitled207_20240217231928.png?ex=6aaec429&is=6aad72a9&hm=2f35393981c9132818a13ce1d2d35b9e8292901cf0641f8ce7ed1a9ffea8df45&)]
 
@@ -9,7 +6,7 @@
 ☀️⋆｡𖦹°☁️⋆.ೃ࿔*:･
 
 ꒰  . 🥞 。ellie/sploinkous  ◟ `` ˖
-       ✿  🧁
+       ✿ C + H allowed - Please int! i'm always open to talking ^_^ 🧁
 ‧˚꒰🐾୭ ˚. ᵎᵎshe/they !!  
     ‧₊˚♪ 𝄞𝄢₊˚⊹
 
@@ -24,4 +21,4 @@
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
--->
+
